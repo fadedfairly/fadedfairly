@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fadedfairly
+- 👀 I’m interested in Roblox Development and Animation
+- 🌱 I’m currently learning Lua, Blender, After Effects
+- 💞️ I’m looking to collaborate on YouTube videos
+- 📫 How to reach me fairlyknown@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I know lots of famous people
